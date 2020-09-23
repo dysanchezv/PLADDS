@@ -1,3 +1,5 @@
-# Rappi y la gig economy... una introducción digital 
+# La gig economy y el reparto digital
+## Una brevísima introducción
+
 ___
 
